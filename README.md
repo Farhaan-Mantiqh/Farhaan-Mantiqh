@@ -20,7 +20,7 @@ I'm always eager to learn new technologies and push the boundaries of web develo
 ## 📫 Get in Touch
 
 - Email: farhaanmf136@gmail.com
-- Twitter: [@mzzsiz](https://twitter.com/mzzsiz)
+- Twitter: [@mzzsiz](https://instagram.com/mzzsiz)
 
 <!--
 ## 🚀 Featured Projects
