@@ -1,4 +1,4 @@
-# Hi there, I'm Farhaan-Mantiqh 👋
+# Hi there, I'm Farhaan 👋
 
 > "If I try hard enough, maybe someday things will work out."  
 > — Yu Ishigami
